@@ -14,4 +14,5 @@ Checkout my medium profile where I wrote about this project.
 
 https://medium.com/@kmacver
 
+Thanks for reading.
 
